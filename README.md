@@ -8,6 +8,10 @@ use three finger click on laptops
 <a href="https://mmccall0813.github.io/stopspy/1stop.html">Stop</a> <a href="https://mmccall0813.github.io/stopspy/2spying.html">spying</a> <a href="https://mmccall0813.github.io/stopspy/3on.html">on</a> <a href="https://mmccall0813.github.io/stopspy/4me.html">me!</a>
 
 https://mmccall0813.github.io/stopspy/1stop.html
+
 https://mmccall0813.github.io/stopspy/2spying.html
+
 https://mmccall0813.github.io/stopspy/3on.html
+
 https://mmccall0813.github.io/stopspy/4me.html
+
